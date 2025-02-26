@@ -19,7 +19,7 @@
 
 ### 📫 Contact Me
 - 💬 Telegram: [@RAHIMOVXOJIAKBAR01](https://t.me/RAHIMOVXOJIAKBAR01)  
-- 📧 Email: [Email](emailto.rahimovxojiakbar69@gmail.com)
+- 📧 Email: [Email](mailto:rahimovxojiakbar69@gmail.com)
 
 
 
