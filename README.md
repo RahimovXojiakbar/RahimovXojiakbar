@@ -13,8 +13,6 @@
 - 📑 [Training center](https://github.com/RahimovXojiakbar/ENG-Oquv-markaz)
 
 
-## 📈 GitHub Stats
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=RahimovXojiakbar&show_icons=true&theme=radical)
 
 
 ### 📫 Contact Me
