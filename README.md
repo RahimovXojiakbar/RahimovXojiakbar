@@ -15,7 +15,7 @@
 
 
 ### 📫 Contact Me
-- 💬 Telegram: [@RAHIMOVXOJIAKBAR01](https://t.me/RAHIMOVXOJIAKBAR01)  
+- 💬 Telegram: [@RAHIMOVXOJIAKBAR01](https://t.me/xojiakbarrahimov)  
 - 📧 Email: [Email](mailto:rahimovxojiakbar69@gmail.com)
 
 
